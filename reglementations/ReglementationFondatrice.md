@@ -1,4 +1,4 @@
-> **Constitution de l´ACTL**
+> **Réglementation fondatrice de l´ACTL**
 
 # Introduction
 
